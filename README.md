@@ -1,1 +1,1 @@
-# Sfera
+# Sfera.
